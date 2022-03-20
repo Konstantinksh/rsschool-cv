@@ -65,4 +65,3 @@ For ten i was living in Minsk and was a member of Minsk HackerSpace. Almost all 
     Had a speaking and writing practice while working with clients from Israel.
 2. Russian - native
 3. Belorussian - native
-
