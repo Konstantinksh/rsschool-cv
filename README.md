@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Konstantinksh.github.io/rsschool-cv/
